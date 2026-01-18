@@ -9,7 +9,7 @@ Note: If you prefer a softer & sweeter ice cream, then use more punsch (liquor) 
 
 ## Ingredients
 
-- 5-6 eggs
+- 5-6 egg yolks
 - 0.5-1.5 dl Punsch (liquor)
 - 1-3 dl sugar
 - 5-6 dl whipping cream
@@ -24,10 +24,10 @@ Note: If you prefer a softer & sweeter ice cream, then use more punsch (liquor) 
 
 ## Steps
 
-- Crack the eggs in a bowl and put the sugar in. Whisk it to a smooth texture then add the liquor and mix
+- Put the **egg yolks** (separate it if you havent done so already) in a bowl then put the sugar in. Whisk it to a smooth texture then add the liquor and mix
 - Turn the whipping cream into whipped cream
 - Cut the chocolate into tiny pieces
 
 - Mix everything together, optionally save some chocolate to add as sprinkles on top.
 
-- Pour into containers and freeze for minimum 8 hours
+- Pour into containers and freeze for minimum 8 hours.
