@@ -1,7 +1,7 @@
 ---
 title: Punsch ice cream
 tags: dessert, vegetarian
-threads: 2
+threads: 3
 time: 20
 ---
 
